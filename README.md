@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **anything that you want**
 
-- ⚡ Fun fact **I'm not fun**
+- ⚡ Fun fact **I am an awesome, fun, cool individual that brightens up every single standup that I participate in (source: Zachary Plotkin)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
